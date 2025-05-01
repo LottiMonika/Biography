@@ -7,3 +7,5 @@ At Catawiki B.V. in the Netherlands, I recently served as a Workforce Planner & 
 Prior to this, as a Commercial Operations Process Coordinator at Catawiki, I led successful rollouts of new features for a large group of experts and optimized sales tools. I designed and trained teams on processes related to the Kustomer ticketing system and published critical resources, such as the Seller Submission Guidelines, through extensive collaboration across teams. I also introduced JIRA to streamline project tracking and promoted cross-team collaboration with innovative shadowing sessions.
 
 Combining my practical experience in workforce planning with my academic focus on data analytics, I am driven to continue developing data-driven solutions that optimize business operations and improve organizational outcomes.
+
+Check out my Linkedin to get more insights into my professional career: https://www.linkedin.com/in/lotti-monika-knobel/
